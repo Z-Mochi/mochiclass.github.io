@@ -49,6 +49,5 @@ We care about your child’s privacy. "Mochi's Class" does not collect personal 
 Feedback
 -------------
 We’d love to hear from you! If you have suggestions, feature requests, or comments, please send them our way. Your feedback helps us improve the game for all our young learners.
-
 Thank you for choosing "Mochi's Class: Fun Learning Adventures." We hope your child enjoys learning with us!
 
