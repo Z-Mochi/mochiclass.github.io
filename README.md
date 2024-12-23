@@ -1,6 +1,11 @@
 Support for "Mochi's Class: Fun Learning Adventures"
-Thank you for choosing "Kid Class: Fun Learning Adventures"! We're excited to help your child embark on a fun-filled educational journey. If you have any questions or need assistance, please refer to the information below.
+
+----------------
+
 ------------------
+Thank you for choosing "Mochi's Class: Fun Learning Adventures"! We're excited to help your child embark on a fun-filled educational journey. If you have any questions or need assistance, please refer to the information below.
+
+-----------------------------------
 Getting Started
 "Mochi's Class" is designed to be user-friendly and intuitive for children. Here’s how to get started:
 
